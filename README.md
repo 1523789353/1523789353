@@ -1,3 +1,1 @@
 - 👋 Hi, I’m @1523789353/皇家养猪场
-- I'm learning HTML5/C# now.
-- I'm a html5 rookie ~~, and my English is **VERY** poor~~
